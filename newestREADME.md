@@ -1,3 +1,5 @@
-hello yoooo! 
-who is first to comment on this message gets a free coffee! 
-V does not want a free coffee
+Hello Y-bunny,
+
+Can you please remove this project? I would like a clean github
+
+Thanks,
